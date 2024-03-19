@@ -5,9 +5,9 @@ MISE À JOUR le 19 mars, 2024
 </br>
 ⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘⇘↯⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙⇙
 <p dir="auto">Priscilla est disponible pour regarder et diffuser sur le site ci-dessus.</p>
-<p dir="auto"><strong>√ Cliquez ici Regardez MAINTENANT ➥<a href="https://cutt.ly/yw2A6dEL" rel="nofollow">Priscilla FILM COMPLET</a></strong></p>
-<p dir="auto"><strong>√ Cliquez ici TÉLÉCHARGER ➥<a href="https://cutt.ly/yw2A6dEL" rel="nofollow">Priscilla EN LIGNE GRATUITEMENT en FRANÇAIS</a></strong></p>
-<p dir="auto"><a href="https://cutt.ly/yw2A6dEL" rel="nofollow"><img src="https://camo.githubusercontent.com/917e6ed5c302499242165dcc02bdbce85c075fd21b35918eb9c0b771855261b8/68747470733a2f2f7374617469632e7769787374617469632e636f6d2f6d656469612f6232343966395f61646163386637306662336634356238383639313639366337376465313866337e6d76322e676966" alt="Foo" style="max-width: 100%;"></a></p>
+<p dir="auto"><strong>√ Cliquez ici Regardez MAINTENANT ➥<a href="https://cutt.ly/aw2Sw8DR" rel="nofollow">Priscilla FILM COMPLET</a></strong></p>
+<p dir="auto"><strong>√ Cliquez ici TÉLÉCHARGER ➥<a href="https://cutt.ly/aw2Sw8DR" rel="nofollow">Priscilla EN LIGNE GRATUITEMENT en FRANÇAIS</a></strong></p>
+<p dir="auto"><a href="https://cutt.ly/aw2Sw8DR" rel="nofollow"><img src="https://camo.githubusercontent.com/917e6ed5c302499242165dcc02bdbce85c075fd21b35918eb9c0b771855261b8/68747470733a2f2f7374617469632e7769787374617469632e636f6d2f6d656469612f6232343966395f61646163386637306662336634356238383639313639366337376465313866337e6d76322e676966" alt="Foo" style="max-width: 100%;"></a></p>
 Comment Voir Priscilla des films gratuitement en français complet ? Priscilla un film sur internet gratuitement sans télécharger bonne qualité HD.
 Priscilla (2023)
 SYNOPSIS Quand le foyer Lino Vartan - qui accueille jeunes orphelins et seniors- doit fermer pour raisons sanitaires, Milann n’a pas d’autre choix que de répondre à l’invitation d’une maison de retraite dans le Sud qui les accueille pour l’été. Tous embarquent dans le bus d’Alban.
